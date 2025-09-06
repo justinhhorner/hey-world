@@ -1,4 +1,4 @@
-![Retro collection](retro_collection.png)
+![Retro collection](retro_collection.jpg)
 When I was younger, I took everything I studied and practiced seriously. Every hobby became a grind or side hustle.
 
 Guitar led to wanting to be in a band as a lead guitarist and tour. Programming led to wanting to work on a product that had a huge positive impact on the world. Even Yo-Yo led to wanting to enter competitions.
